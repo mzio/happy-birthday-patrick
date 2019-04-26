@@ -1,2 +1,2 @@
 # happy-birthday-patrick
-Yea I have a weird family...
+Woo birthdays! [Happy birthday Patrick!](http://michaelzhang.xyz/happy-birthday-patrick/)
